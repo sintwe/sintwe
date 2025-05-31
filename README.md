@@ -35,7 +35,7 @@ If you have an exciting idea or a project where our expertise can make a differe
 
 The best way to connect with Sintwe is:
 * **Email:** [business@sintwe.com](mailto:business@sintwe.com)
-* **Phone:** [+917828123304](tel:+918305343581)
+* **Phone:** [+918305343581](tel:+918305343581)
 * **Website:** [sintwe.com](http://sintwe.com)
 
 ---
